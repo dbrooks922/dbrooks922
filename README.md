@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dbrooks922
-- 👀 I’m interested in cars, coding, games
+- 👀 I’m interested in cars and coding
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me dbrooks92200@gmail.com
